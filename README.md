@@ -1,1 +1,1 @@
-Bardzo porządny projekt bardzo porządnego testera
+Bardzo porządny projekt, bardzo porządnego testera
